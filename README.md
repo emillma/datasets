@@ -1,2 +1,2 @@
-Data is only available on request until further notice.
-Please email emil.martens@gmail.com to get access.
+Data is only available on request for now but will be made freely available later.
+Please email emil.martens@ntnu.no to get access.
